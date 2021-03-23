@@ -1,9 +1,15 @@
 **IT'S FUN TO SOLVE SECRET CODES SO HERE IS YOUR SECRET CODE.**
 
+**Bfgvla pd egn ycmelo.
+mel Rgtz sy Lnzcoa.
+ms mel Bcome ms vgil custz usomcvn,
+aa Ielt el vctan st Bcome.
+egn moknmla hlcrst gn agnxsilola cta xcrmkola pd O,C,A,B,Y,E,aaaa
+**
 
 
 
-![](d.PNG)
+
 
 
 
